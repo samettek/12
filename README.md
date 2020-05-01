@@ -1,3 +1,2 @@
-# Cumhurbaskanligi-Uyg.
 
 
